@@ -3,7 +3,7 @@
  and the language im trying to learn is portguese 
  and if you wnat 2 talk just give me a whisper or cuddle me (in game.) and like try 2 talk to me if i dont reply its prob becuz im offtab!!
  my pronouns r anything except she/her 
- and i am a minor so please dont act weird as in flirting and/or wanting 2 meet me irl if your older then me but if you flirt with me as a joke its fine!! 
+ and i am a minor so please dont act weird or s3xu4l
  homeschooled.
 
  ~~~~
