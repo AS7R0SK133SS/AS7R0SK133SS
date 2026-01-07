@@ -12,7 +12,7 @@
   ⌇
   
  
-                                                                                                                                                                                 𓏵 i am horrible at starting conversations so you have to walk up to me and start it first, i may be awkward at first tho!!
+                                                                                                                                                                                𓏵 i am horrible at starting conversations so you have to walk up to me and start it first, i may be awkward at first tho!!
 
   𓏵 c+h freely unless stated not 2 
 
@@ -21,10 +21,10 @@
 
 
  
- 𓏵 please dont make jokes about sex racism and anything weird 
+   𓏵 please dont make jokes about sex racism and anything weird 
 
- 
-  𓏵 i may be nonverb sometimes when i feel down but you can int {sometimes} just be cautious about me not interacting back SOMETIMES
+
+𓏵 i may be nonverb sometimes when i feel down but you can int {sometimes} just be cautious about me not interacting back SOMETIMES
 
 
  
