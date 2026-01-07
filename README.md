@@ -5,13 +5,7 @@
  
  𓂃𓂃 
                                                                                                                                                                            
-                                                                                                                                                                                                                                                                                                                                                     -           𓏵 i may not reply sometimes since half of the time i am offtab, or i just didnt catch what you said
-
-
-  
-  ⌇
-  
-      -  𓏵 i am horrible at starting conversations so you have to walk up to me and start it first, i may be awkward at first tho!!
+                                                                                                                                                                                                                                                                                                                                                     -    
 
   𓏵 c+h freely unless stated not 2 
 
