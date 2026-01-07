@@ -5,7 +5,7 @@
  
  𓂃𓂃 
                                                                                                                                                                            
-                                                                                                                                                                                                                                                                                                                                                     -  𓏵 i may not reply sometimes since half of the time i am offtab, or i just didnt catch what you said
+                                                                                                                                                                                                                                                                                                                                                     -           -  𓏵 i may not reply sometimes since half of the time i am offtab, or i just didnt catch what you said
 
 
   
